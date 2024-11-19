@@ -1,0 +1,2 @@
+# Cognitiv
+Pułapki myślenia
